@@ -1,8 +1,8 @@
 # 📺 TIS ASSIGNMENTS VIDEO
 
 ## Industri Visit 1 - UTMDIGITAL
-▶ Click the image above to watch the video.
 [![TIS Assignment Demo](https://img.youtube.com/vi/vBBKEiVfkrY/0.jpg)](https://youtu.be/vBBKEiVfkrY)
+▶ Click the image above to watch the video.
 
 ---
 
