@@ -22,4 +22,7 @@
 ---
 
 ## PC assemble LAB
+(https://drive.google.com/drive/folders/13Cb7rysX65kkmhzDxXxp9VrHxgalWKSw?usp=sharing)
+
+▶ Click the link above to view.
 
