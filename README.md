@@ -1,16 +1,9 @@
-# 📺 TIS ASSIGNMENTS VIDEO AND REPORT LINK 
+# 📺 TIS ASSIGNMENTS VIDEO LINK 
 
 ## Industri Visit 1 - UTMDIGITAL
 [![TIS Assignment Demo](https://img.youtube.com/vi/vBBKEiVfkrY/0.jpg)](https://youtu.be/vBBKEiVfkrY)
 
 ▶ Click the image above to watch the video.
-
----
-
-## 📄 Industri Talk 2 - Project Management dan System Development
-Word Report: 🔗 https://1drv.ms/w/c/3766e6d3a824e051/IQBjHVAZy7NBRIzQYw0qYyrvAaB81wsMhyUBcAxOZAYyXUM?e=1rvErX
-
-👉 [Click the link above to view the report on OneDrive]
 
 ---
 
